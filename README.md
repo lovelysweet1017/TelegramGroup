@@ -69,9 +69,9 @@ AnyFlow：[https://t.me/AnyFlowApp](https://link.jianshu.com/?t=https%3A%2F%2Ft.
 lhie1 墙洞：[https://t.me/lhie1x](https://link.jianshu.com/?t=https%3A%2F%2Ft.me%2Flhie1x)
 
 极客公园：[https://t.me/geekpark](https://link.jianshu.com/?t=https%3A%2F%2Ft.me%2Fgeekpark)
-[arukas.io+](https://link.jianshu.com/?t=http%3A%2F%2Farukas.io%2B)免费
+[arukas.io+](https://link.jianshu.com/?t=http%3A%2F%2Farukas.io%2B)
 
-ss帐号：[arukas.io+](https://link.jianshu.com/?t=http%3A%2F%2Farukas.io%2B)
+免费ss帐号：[arukas.io+](https://link.jianshu.com/?t=http%3A%2F%2Farukas.io%2B)
 
 免费ss帐号：[https://t.me/arukass](https://link.jianshu.com/?t=https%3A%2F%2Ft.me%2Farukass)
 [Ping.cat](https://link.jianshu.com/?t=http%3A%2F%2FPing.cat)
