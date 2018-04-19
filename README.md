@@ -407,37 +407,6 @@ Grupos de Xiaomi en Telegram：[http://telegra.ph/Grupos-de-Xiaomi-en-Telegram-1
 
 烟台：[https://t.me/yantaiinfo](https://link.jianshu.com/?t=https%3A%2F%2Ft.me%2Fyantaiinfo)
 
-## 开车
-
-草榴社區：[http://telegram.me/t66ycom](https://link.jianshu.com/?t=http%3A%2F%2Ftelegram.me%2Ft66ycom)
-
-草榴社區非公開群組：[https://telegram.me/joinchat/B6DKID593hHO82d_Uh5YXg](https://link.jianshu.com/?t=https%3A%2F%2Ftelegram.me%2Fjoinchat%2FB6DKID593hHO82d_Uh5YXg)
-
-草榴社區技術討論區：[https://telegram.me/jstlq](https://link.jianshu.com/?t=https%3A%2F%2Ftelegram.me%2Fjstlq)
-
-吹水：性聊群：
-[https://telegram.me/joinchat/BkqfO0CFvVvam1GEFKKU7Q](https://link.jianshu.com/?t=https%3A%2F%2Ftelegram.me%2Fjoinchat%2FBkqfO0CFvVvam1GEFKKU7Q)
-
-吹水：乳此多嬌：[https://telegram.me/joinchat/BkqfO0FFFaF9GY186rJqUg](https://link.jianshu.com/?t=https%3A%2F%2Ftelegram.me%2Fjoinchat%2FBkqfO0FFFaF9GY186rJqUg)
-
-三俗社：[https://telegram.me/joinchat/Bu6YqTwWsTusQreCjgoEWA](https://link.jianshu.com/?t=https%3A%2F%2Ftelegram.me%2Fjoinchat%2FBu6YqTwWsTusQreCjgoEWA)
-
-汤不热🔞视频开车：[https://t.me/sex777777777](https://link.jianshu.com/?t=https%3A%2F%2Ft.me%2Fsex777777777)
-
-汤不热复活群：[https://t.me/joinchat/FGRmCkLblhAmlN2DOHMPzA](https://link.jianshu.com/?t=https%3A%2F%2Ft.me%2Fjoinchat%2FFGRmCkLblhAmlN2DOHMPzA)
-
-胴体的秘密：[https://t.me/secretofbody](https://link.jianshu.com/?t=https%3A%2F%2Ft.me%2Fsecretofbody)
-
-Tumblr司机开车群：[https://t.me/joinchat/AAAAAEOgwGKpRHMJ2JDL8A](https://link.jianshu.com/?t=https%3A%2F%2Ft.me%2Fjoinchat%2FAAAAAEOgwGKpRHMJ2JDL8A)
-
-Tumblr群组：[https://t.me/joinchat/FGRmCkM-TDZKpuyruVN-HA](https://link.jianshu.com/?t=https%3A%2F%2Ft.me%2Fjoinchat%2FFGRmCkM-TDZKpuyruVN-HA)
-
-老司机的乐园：[https://t.me/ipron](https://link.jianshu.com/?t=https%3A%2F%2Ft.me%2Fipron)
-
-R18cn🈲步兵旅：[https://t.me/R18cn](https://link.jianshu.com/?t=https%3A%2F%2Ft.me%2FR18cn)
-
-R18🈲韩影社：[https://t.me/R18kr](https://link.jianshu.com/?t=https%3A%2F%2Ft.me%2FR18kr)
-
 ## 台湾
 
 台灣群組廣播站：[https://t.me/TopicsTW](https://link.jianshu.com/?t=https%3A%2F%2Ft.me%2FTopicsTW)
