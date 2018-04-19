@@ -259,6 +259,8 @@ Appinn Talk (小众软件)：[https://t.me/appinn](https://link.jianshu.com/?t=h
 
 xbeta试验群：[https://t.me/joinchat/GlfNu0QEvcBOa5hhT-08PA](https://link.jianshu.com/?t=https%3A%2F%2Ft.me%2Fjoinchat%2FGlfNu0QEvcBOa5hhT-08PA)
 
+树莓派交流群：[https://t.me/shumeipai](https://t.me/shumeipai)
+
 OneNote：[https://t.me/onenoter](https://link.jianshu.com/?t=https%3A%2F%2Ft.me%2Fonenoter)
 
 iOS：[https://telegram.me/iOSdevotee](https://link.jianshu.com/?t=https%3A%2F%2Ftelegram.me%2FiOSdevotee)
