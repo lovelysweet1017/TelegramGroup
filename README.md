@@ -695,6 +695,36 @@ BURSA KLCI 股市资讯：[https://t.me/kywtraders](https://link.jianshu.com/?t=
 
 全膜法新蛤社：[https://t.me/Chinamogicunion](https://link.jianshu.com/?t=https%3A%2F%2Ft.me%2FChinamogicunion)
 
+## 货币
+
+Allcoin：[https://t.me/AllcoinExchange](https://t.me/AllcoinExchange)
+
+点量金服：[https://telegram.me/vpdax](https://telegram.me/vpdax)
+
+暴走区块链技术讨论：[https://t.me/baozoublockchain](https://t.me/baozoublockchain)
+ 
+币探索©加密货币投资交流：[https://t.me/bitansuo](https://t.me/bitansuo)
+ 
+比特币小道消息：[https://t.me/bitebi](https://t.me/bitebi)
+ 
+巴比特粉丝群：[https://t.me/ba8btc](https://t.me/ba8btc)
+ 
+OKCOIN用户交流群：[https://t.me/okcoincom](https://t.me/okcoincom)
+ 
+ICO Rating：[https://t.me/ico_rating](https://t.me/ico_rating)
+ 
+风暴区块链频道：[https://t.me/fengbaoqkl](https://t.me/fengbaoqkl)
+ 
+加密数字货币与区块链频道：[https://t.me/knowBlockchain](https://t.me/knowBlockchain) 
+ 
+比特币小道消息：[https://t.me/bitebi](https://t.me/bitebi)
+ 
+CryptoCN-加密货币中文交流：[https://t.me/CryptoCN](https://t.me/CryptoCN)
+
+区块链项目资讯交流：[https://t.me/qukuailian](https://t.me/qukuailian) 
+ 
+BTCtrade：[https://t.me/btctradecom](https://t.me/btctradecom)
+
 ## 其他
 
 XXXXXXX：[https://t.me/xxxxxxx](https://link.jianshu.com/?t=https%3A%2F%2Ft.me%2Fxxxxxxx)
