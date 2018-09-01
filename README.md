@@ -2,7 +2,6 @@
 
 如果有更多好玩的telegram群，欢迎在 issue 提出或者pull requests
 
-已经删除部分敏感信息群，想开车请自行查找
 
 ## 少数派
 
