@@ -2,6 +2,32 @@
 
 *   广告位招商，有意@ itgoyo@gmail.com   【中国人不骗中国人，不接黄赌毒、政治、敏感、等不良广告】
 
+<table>
+  <tr>
+    <td align="center">
+      <a href="https://curl.qcloud.com/43JC4fAE">
+        <img src="https://upload-dianshi-1255598498.file.myqcloud.com/345x200-08ea7ec01febe3c7f600608e973fc44f43efec34.jpg" width="345px;" alt="1"/>
+      </a>
+      <br />
+      <a href="https://curl.qcloud.com/43JC4fAE">优惠套餐一</a>
+    </td>
+    <td align="center">
+      <a href="https://curl.qcloud.com/uis5UuWB">
+        <img src="https://upload-dianshi-1255598498.file.myqcloud.com/345-200-788d0ee3eed06e913b85ddb6b178f8b9960c4684.jpg" width="345px;" alt="2"/>
+      </a>
+      <br />
+      <a href="https://curl.qcloud.com/uis5UuWB">优惠套餐二</a>
+    </td>
+    <td align="center">
+      <a href="https://curl.qcloud.com/XOLUPdVy">
+        <img src="https://upload-dianshi-1255598498.file.myqcloud.com/%E5%85%A8%E7%90%83%E8%B4%AD_345%20200-dd004d4a4191fcbabcabea4fcd96f67d1e069f58.jpg" width="345px;" alt="3"/>
+      </a>
+      <br />
+      <a href="https://curl.qcloud.com/XOLUPdVy">优惠套餐三</a>
+    </td>
+    
+</table>
+
 ##### 推荐[](https://congcong0806.github.io/2018/04/24/Telegram/#%E6%8E%A8%E8%8D%90)
 
 *   Telegram 客户端界面中文汉化:[https://t.me/yxbjx/2255803](https://t.me/yxbjx/2255803)
