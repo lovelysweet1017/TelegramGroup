@@ -1,3 +1,9 @@
+<!--
+ * @Description:
+ * @Author: itgoyo
+ * @E-mail: itgoyo@gmail.com
+ * @Github: itgoyo
+-->
 ##### 推广
 
 *   广告位招商，有意@ itgoyo@gmail.com   【中国人不骗中国人，不接黄赌毒、政治、敏感、等不良广告】
@@ -25,7 +31,7 @@
       <br />
       <a href="https://curl.qcloud.com/XOLUPdVy">优惠套餐三</a>
     </td>
-    
+
 </table>
 
 ##### 推荐[](https://congcong0806.github.io/2018/04/24/Telegram/#%E6%8E%A8%E8%8D%90)
@@ -40,6 +46,7 @@
 
 ###### 翻墙[](https://congcong0806.github.io/2018/04/24/Telegram/#%E7%BF%BB%E5%A2%99)
 
+*   搬瓦工 (BandwagonHost):[https://t.me/BandwagonHostUsers](https://t.me/BandwagonHostUsers)
 *   机场交流群:[https://t.me/rixCloud_User](https://t.me/rixCloud_User)
 *   Surge 交流:[https://t.me/loveapps](https://t.me/loveapps)
 *   Surge Pro:[https://t.me/SurgePro](https://t.me/SurgePro)
@@ -392,7 +399,6 @@
 *   电报人:[https://t.me/three001](https://t.me/three001)
 *   Google Drive 无限容量:[https://t.me/google_drive](https://t.me/google_drive)
 *   Google Drive 交流群:[https://t.me/GoogleDriveStore](https://t.me/GoogleDriveStore)
-*   搬瓦工 (BandwagonHost):[https://t.me/BandwagonHostGroup](https://t.me/BandwagonHostGroup)
 *   跳蚤市场 - 科学上网交流等:[http://t.me/PharosMarketShopping](http://t.me/PharosMarketShopping)
 *   读舍 - 享受阅读时光:[https://t.me/shufm](https://t.me/shufm)
 *   iGame 游戏交流群:[https://t.me/gamecn](https://t.me/gamecn)
