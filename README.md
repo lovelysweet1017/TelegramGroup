@@ -34,6 +34,12 @@
 
 </table>
 
+### 青龙代挂京豆 基本每天可200+豆子
+JDC：http://42.193.247.103:5566/
+
+<img src="https://cdn.jsdelivr.net/gh/itgoyo/PicGoRes@master/img/20220112163351.png" alt="青龙" width="253" height="303" align="left" />
+<br />
+
 ##### 推荐[](https://congcong0806.github.io/2018/04/24/Telegram/#%E6%8E%A8%E8%8D%90)
 
 *   Telegram 客户端界面中文汉化:[https://t.me/yxbjx/2255803](https://t.me/yxbjx/2255803)
