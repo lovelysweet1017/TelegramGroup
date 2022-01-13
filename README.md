@@ -37,7 +37,7 @@
 ### 青龙代挂京豆 基本每天可200+豆子
 JDC：http://42.193.247.103:5566/
 
-<a>
+<a align="left">
 
 <img src="https://cdn.jsdelivr.net/gh/itgoyo/PicGoRes@master/img/20220113115457.png" alt="青龙" width="253" height="303"  />
 <img src="https://cdn.jsdelivr.net/gh/itgoyo/PicGoRes@master/img/20220112163351.png" alt="青龙" width="253" height="303"  />
