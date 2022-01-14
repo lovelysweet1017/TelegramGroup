@@ -71,9 +71,8 @@ JDC：http://42.193.247.103:5566/
 *   Telegram 十万人群:[https://t.me/yxbjx](https://t.me/yxbjx)
 *   Telegram 中文圈:[https://t.me/tgzhcn](https://t.me/tgzhcn)
 
-##### 群组 Group[](https://congcong0806.github.io/2018/04/24/Telegram/#%E7%BE%A4%E7%BB%84-group)
-
-###### 翻墙[](https://congcong0806.github.io/2018/04/24/Telegram/#%E7%BF%BB%E5%A2%99)
+### 群组 Group[](https://congcong0806.github.io/2018/04/24/Telegram/#%E7%BE%A4%E7%BB%84-group)
+###### 番茄[](https://congcong0806.github.io/2018/04/24/Telegram/#%E7%BF%BB%E5%A2%99)
 
 *   搬瓦工 (BandwagonHost):[https://t.me/BandwagonHostUsers](https://t.me/BandwagonHostUsers)
 *   机场交流群:[https://t.me/rixCloud_User](https://t.me/rixCloud_User)
