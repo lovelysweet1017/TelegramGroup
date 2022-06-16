@@ -31,7 +31,30 @@
       <br />
       <a href="https://curl.qcloud.com/XOLUPdVy">优惠套餐三</a>
     </td>
-
+     </tr>
+  <tr>
+    <td align="center">
+      <a href="ttps://activity.huaweicloud.com/618_promotion/index.html?fromacct=b42563bb-7cf2-4b3c-83c9-b37a6e6e63d3&utm_source=aHcwMjAyNTMwMTQ==&utm_medium=cps&utm_campaign=201905">
+        <img src="https://cdn.jsdelivr.net/gh/itgoyo/PicGoRes@master/img/huaweiyun.jpg" width="345px;" alt="1"/>
+      </a>
+      <br />
+      <a href="https://curl.qcloud.com/43JC4fAE">优惠套餐一</a>
+    </td>
+    <td align="center">
+      <a href="https://www.tsyvps.com/aff/WZLKZCQY">
+        <img src="https://cdn.jsdelivr.net/gh/itgoyo/PicGoRes@master/img/tsyvps.png" width="345px;" alt="2"/>
+      </a>
+      <br />
+      <a href="https://curl.qcloud.com/uis5UuWB">香港云服务器25/月</a>
+    </td>
+    <td align="center">
+      <a href="https://curl.qcloud.com/XOLUPdVy">
+        <img src="https://cdn.jsdelivr.net/gh/itgoyo/PicGoRes@master/img/20220616103138.png" width="345px;" alt="3"/>
+      </a>
+      <br />
+      <a href="https://curl.qcloud.com/XOLUPdVy">免费云服务器</a>
+    </td>
+     </tr>
 </table>
 
 ##### 推荐[](https://congcong0806.github.io/2018/04/24/Telegram/#%E6%8E%A8%E8%8D%90)
