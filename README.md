@@ -25,11 +25,11 @@
       <a href="https://universalbus.cn/?s=SylOu1w6fa://curl.qcloud.com/uis5UuWB">奈飞合租</a>
     </td>
      <td align="center">
-      <a href="https://curl.qcloud.com/XOLUPdVy">
-        <img src="https://cdn.jsdelivr.net/gh/itgoyo/PicGoRes@master/img/20220616103138.png" width="345px;" alt="3"/>
+      <a href="https://aws.amazon.com/cn/free/?sc_channel=seo&sc_campaign=video3">
+        <img src="https://cdn.jsdelivr.net/gh/itgoyo/PicGoRes@master/img/202305061153084.png" width="345px;" alt="3"/>
       </a>
       <br />
-      <a href="https://curl.qcloud.com/XOLUPdVy">免费云服务器</a>
+      <a href="https://aws.amazon.com/cn/free/?sc_channel=seo&sc_campaign=video3">免费云服务器</a>
     </td>
      </tr>
   <tr>
