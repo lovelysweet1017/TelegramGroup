@@ -26,7 +26,7 @@
     </td>
      <td align="center">
       <a href="https://aws.amazon.com/cn/free/?sc_channel=seo&sc_campaign=video3">
-        <img src="https://cdn.jsdelivr.net/gh/itgoyo/PicGoRes@master/img/202305061153084.png" width="345px;" alt="3"/>
+        <img src="https://cdn.jsdelivr.net/gh/itgoyo/PicGoRes@master/img/aws.png" width="345px;" alt="3"/>
       </a>
       <br />
       <a href="https://aws.amazon.com/cn/free/?sc_channel=seo&sc_campaign=video3">免费云服务器</a>
